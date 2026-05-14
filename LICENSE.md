@@ -1,4 +1,4 @@
-#  
+#  instant Scripts for get strong for brainrots is the best get strong for brainrots Script, featuring infinite resources and anti-ban. Safe and
 
 
 
